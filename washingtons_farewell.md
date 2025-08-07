@@ -1,4 +1,6 @@
-```https://archive.org/details/washingtonsfarew00wash_5/page/2/mode/2up```
+https://archive.org/details/washingtonsfarew00wash_5/  
+https://dn790003.ca.archive.org/0/items/washingtonsfarew00wash_5/washingtonsfarew00wash_5.pdf  
+
 
 TO THE PEOPLE OF THE UNITED STATES.
 
